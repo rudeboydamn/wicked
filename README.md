@@ -1,2 +1,2 @@
 # wicked
-A wicked rudely. 
+Fantastic, but Rudely Wicked
